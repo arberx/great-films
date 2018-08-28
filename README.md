@@ -2,6 +2,11 @@
 
 A list of great stories, well told.
 
+
+#### Three Billboards Outside Ebbing, Missouri - 2017
+
+Mildred Hayes, a hard-nosed mother is seeking justice for her murdered daughter. With no arrests after seven months, Mildred puts up three roadside signs to goad Ebbing police chief into action. But the law - and especially Sam Rockwell's hot-headed deputy - don't take kindly to the provocation. And the townsfolk are on their side. But Mildred doesn't care about ruffling a few feathers. In fact, she's happy to pluck the whole bird.
+
 #### Only The Brave - 2017
 
 Based on the true story of the Granite Mountain Hotshots, a group of elite firefighters who risk everything to protect a town from a historic wildfire.
@@ -67,6 +72,12 @@ When Ted Crawford discovers that his beautiful younger wife, Jennifer, is having
 #### City Of God ("Cidade de Deus") - 2003
 
 Fernando Meirelles' City of God is a sweeping tale of how crime affects the poor population of Rio de Janeiro. Though the narrative skips around in time, the main focus is on Cabeleira who formed a gang called the Tender Trio. He and his best friend, Bené (Phelipe Haagensen), become crime lords over the course of a decade. When Bené is killed before he can retire, Lil' Zé attempts to take out his arch enemy, Sandro Cenoura (Matheus Nachtergaele). But Sandro and a young gangster named Mane form an alliance and begin a gang war with Lil' Zé. Amateur photographer Buscape (Alexandre Rodrigues) takes pictures of the brutal crime war, making their story famous. City of God was screened at the 2002 Cannes Film Festival.
+
+
+#### Titanic - 1997
+
+84 years later, a 100 year-old woman named Rose DeWitt Bukater tells the story to her granddaughter Lizzy Calvert, Brock Lovett, Lewis Bodine, Bobby Buell and Anatoly Mikailavich on the Keldysh about her life set in April 10th 1912, on a ship called Titanic when young Rose boards the departing ship with the upper-class passengers and her mother, Ruth DeWitt Bukater, and her fiancé, Caledon Hockley. Meanwhile, a drifter and artist named Jack Dawson and his best friend Fabrizio De Rossi win third-class tickets to the ship in a game. And she explains the whole story from departure until the death of Titanic on its first and last voyage April 15th, 1912 at 2:20 in the morning.
+
 
 #### Heat - 1995
 
