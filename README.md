@@ -115,6 +115,6 @@ In this controversial western classic, Gary Cooper as Will Kane must delay his r
 
 A woman is asked to spy on a group of Nazi friends in South America. How far will she have to go to ingratiate herself with them?
 
-### Citizen Kane - 1941
+#### Citizen Kane - 1941
 
 When a reporter is assigned to decipher newspaper magnate Charles Foster Kane's (Orson Welles) dying words, his investigation gradually reveals the fascinating portrait of a complex man who rose from obscurity to staggering heights. 
