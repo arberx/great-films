@@ -1,6 +1,6 @@
 # Great Films
 
-A list of great stories, well told.
+A list of great stories, well told. Inspired from: https://github.com/ac360/great-films
 
 
 #### Three Billboards Outside Ebbing, Missouri - 2017
