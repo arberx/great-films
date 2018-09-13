@@ -49,10 +49,6 @@ Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, ca
 
 A gripping mystery set among a group of old friends on a holiday retreat. With the return of their close friend Ahmad from Germany, a group of former college pals decide to reunite for a weekend outing by the Caspian Sea. The fun starts right away as they quickly catch on to the plan of lively Sepideh, who has brought along Elly, her daughter's kindergarten teacher, in hopes of setting her up with recently divorced Ahmad. But seemingly trivial lies, which start accumulating from the moment the group arrives at the seashore, suddenly swing round and come back full force when one afternoon Elly suddenly vanishes. Her mysterious disappearance sets in motion a series of deceptions and revelations that threaten to shatter everything they hold dear.
 
-#### The Secret In Their Eyes ("El Secreto De Sus Ojos") - 2009
-
-A retired legal counselor writes a novel hoping to find closure for one of his past unresolved homicide cases and for his unreciprocated love with his superior - both of which still haunt him decades later.
-
 #### Michael Clayton - 2007
 
 A law firm brings in its "fixer" to remedy the situation after a lawyer has a breakdown while representing a chemical company that he knows is guilty in a multibillion-dollar class action suit.
