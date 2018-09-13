@@ -64,6 +64,10 @@ It's 1944 and the Allies have invaded Nazi-held Europe. In Spain, a troop of sol
 
 In 1984 East Berlin, an agent of the secret police, conducting surveillance on a writer and his lover, finds himself becoming increasingly absorbed by their lives.
 
+### Old Boy - 2003
+
+Abducted on a rainy night in 1988, the obnoxious drunk, Oh Dae-Su, much to his surprise, wakes up locked in a windowless and dilapidated hotel room, for an unknown reason.
+
 #### Fracture - 2003
 
 When Ted Crawford discovers that his beautiful younger wife, Jennifer, is having an affair, he plans her murder--the perfect murder.
