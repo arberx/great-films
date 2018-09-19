@@ -57,14 +57,14 @@ A law firm brings in its "fixer" to remedy the situation after a lawyer has a br
 
 Outlaw Ben Wade (Russell Crowe) terrorizes 1800s Arizona, especially the Southern Railroad, until he is finally captured. Wade must be brought to trial, so Dan Evans (Christian Bale), the owner of a drought-stricken ranch, volunteers to escort him to the train. Along the trail, a grudging respect forms between the men, but danger looms at every turn, and the criminal's men are in pursuit.
 
-### Pan's Labyrinth - 2006
+#### Pan's Labyrinth - 2006
 It's 1944 and the Allies have invaded Nazi-held Europe. In Spain, a troop of soldiers are sent to a remote forest to flush out the rebels. They are led by Capitan Vidal, a murdering sadist, and with him are his new wife Carmen and her daughter from a previous marriage, 11-year-old Ofelia. Ofelia witnesses her stepfather's sadistic brutality and is drawn into Pan's Labyrinth, a magical world of mythical beings.
 
 #### The Lives Of Others ("Das Leben der Anderen") - 2006
 
 In 1984 East Berlin, an agent of the secret police, conducting surveillance on a writer and his lover, finds himself becoming increasingly absorbed by their lives.
 
-### Old Boy - 2003
+#### Old Boy - 2003
 
 Abducted on a rainy night in 1988, the obnoxious drunk, Oh Dae-Su, much to his surprise, wakes up locked in a windowless and dilapidated hotel room, for an unknown reason.
 
