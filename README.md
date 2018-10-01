@@ -11,6 +11,10 @@ Mildred Hayes, a hard-nosed mother is seeking justice for her murdered daughter.
 
 Based on the true story of the Granite Mountain Hotshots, a group of elite firefighters who risk everything to protect a town from a historic wildfire.
 
+#### Captian Fantastic - 2016
+
+Ben Cash (Viggo Mortensen), his wife Leslie and their six children live deep in the wilderness of Washington state. Isolated from society, Ben and Leslie devote their existence to raising their kids -- educating them to think critically, training them to be physically fit and athletic, guiding them in the wild without technology and demonstrating the beauty of co-existing with nature. When Leslie dies suddenly, Ben must take his sheltered offspring into the outside world for the first time.
+
 #### Embrace Of The Serpant - 2015
 
 The story of the relationship between Karamakate, an Amazonian shaman and last survivor of his people, and two scientists who work together over the course of 40 years to search the Amazon for a sacred healing plant.
