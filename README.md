@@ -106,7 +106,7 @@ Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the Western, 
 
 A television network cynically exploits a deranged former anchor's ravings and revelations about the news media for its own profit.
 
-#### 2001: A Space Odyssey
+#### 2001: A Space Odyssey - 1968
 
 An imposing black structure provides a connection between the past and the future in this enigmatic adaptation of a short story by revered sci-fi author Arthur C. Clarke. When Dr. Dave Bowman (Keir Dullea) and other astronauts are sent on a mysterious mission, their ship's computer system, HAL, begins to display increasingly strange behavior, leading up to a tense showdown between man and machine that results in a mind-bending trek through space and time.
 
