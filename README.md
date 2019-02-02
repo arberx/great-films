@@ -84,6 +84,9 @@ When Ted Crawford discovers that his beautiful younger wife, Jennifer, is having
 
 Fernando Meirelles' City of God is a sweeping tale of how crime affects the poor population of Rio de Janeiro. Though the narrative skips around in time, the main focus is on Cabeleira who formed a gang called the Tender Trio. He and his best friend, Bené (Phelipe Haagensen), become crime lords over the course of a decade. When Bené is killed before he can retire, Lil' Zé attempts to take out his arch enemy, Sandro Cenoura (Matheus Nachtergaele). But Sandro and a young gangster named Mane form an alliance and begin a gang war with Lil' Zé. Amateur photographer Buscape (Alexandre Rodrigues) takes pictures of the brutal crime war, making their story famous. City of God was screened at the 2002 Cannes Film Festival.
 
+#### Rushmore - 1998
+
+When a beautiful first-grade teacher (Olivia Williams) arrives at a prep school, she soon attracts the attention of an ambitious teenager named Max (Jason Schwartzman), who quickly falls in love with her. Max turns to the father (Bill Murray) of two of his schoolmates for advice on how to woo the teacher. However, the situation soon gets complicated when Max's new friend becomes involved with her, setting the two pals against one another in a war for her attention.
 
 #### Titanic - 1997
 
