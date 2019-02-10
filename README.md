@@ -7,10 +7,6 @@ A list of great stories, well told. Inspired from: https://github.com/ac360/grea
 
 Mildred Hayes, a hard-nosed mother is seeking justice for her murdered daughter. With no arrests after seven months, Mildred puts up three roadside signs to goad Ebbing police chief into action. But the law - and especially Sam Rockwell's hot-headed deputy - don't take kindly to the provocation. And the townsfolk are on their side. But Mildred doesn't care about ruffling a few feathers. In fact, she's happy to pluck the whole bird.
 
-#### Only The Brave - 2017
-
-Based on the true story of the Granite Mountain Hotshots, a group of elite firefighters who risk everything to protect a town from a historic wildfire.
-
 #### Captian Fantastic - 2016
 
 Ben Cash (Viggo Mortensen), his wife Leslie and their six children live deep in the wilderness of Washington state. Isolated from society, Ben and Leslie devote their existence to raising their kids -- educating them to think critically, training them to be physically fit and athletic, guiding them in the wild without technology and demonstrating the beauty of co-existing with nature. When Leslie dies suddenly, Ben must take his sheltered offspring into the outside world for the first time.
@@ -23,20 +19,6 @@ The story of the relationship between Karamakate, an Amazonian shaman and last s
 
 A young boy is raised within the confines of a small shed.
 
-#### 99 Homes - 2015
-
-Set amidst the backdrop of the 2008 housing market catastrophe, Dennis Nash, a hard-working and honest man, can't save his family home despite his best efforts. Thrown to the streets with alarming precision by real estate shark Mike Carver, Dennis, out of work and luck, is given a unique opportunity - to join Carver's crew and put others through the harrowing ordeal done to him in order to earn back what's his.
-
-#### The Hunt ("Jagten") - 2013
-
-The story is set in a small Danish village around Christmas,
-and follows a man who becomes the target of mass hysteria after being wrongly
-accused of sexually abusing a child in his kindergarten class.
-
-#### Tangerines ("Mandariinid") - 2013
-
-Set in 1992, during the growing conflict between Georgia and Abkhazian separatists in the wake of the Soviet Union's dissolution, this compassionate tale focuses on two Estonian immigrant farmers who decide to remain in Georgia long enough to harvest their tangerine crop. When the war comes to their doorsteps, Ivo (played by legendary Estonian actor Lembit Ulfsak) takes in two wounded soldiers from opposite sides. The fighters vow to kill each other when they recover, but their extended period of recovery has a humanizing effect that might transcend ethnic divides. Set against a beautiful landscape defiled by war, this poetic film makes an eloquent statement for peace.
-
 #### Incendies - 2011
 
 Director Denis Villeneuve adapts Wajdi Mouawad's play concerning a pair of twins who make a life-altering discovery following the death of their mother. Upon learning that their absentee father is still very much alive and they also have a brother they have never met, the pair travels to the Middle East on a mission to uncover the truth about their mystery-shrouded past.
@@ -45,17 +27,9 @@ Director Denis Villeneuve adapts Wajdi Mouawad's play concerning a pair of twins
 
 When Jeff (Jason Segel) leaves his mother's basement to buy wood glue at the store, he looks for signs from the universe to determine his path. However, a series of unexpected and amusing events leads him to cross paths with his family, especially his brother (Ed Helms), in the strangest of circumstances and locations. If Jeff is very lucky and universally blessed, he will find the meaning of his life... and remember to buy the wood glue as well.
 
-#### A Separation ("Jodaeiye Nader az Simin") - 2011
-
-Set in contemporary Iran, A Separation is a compelling drama about the dissolution of a marriage. Simin wants to leave Iran with her husband Nader and daughter Termeh. Simin sues for divorce when Nader refuses to leave behind his Alzheimer-suffering father. Her request having failed, Simin returns to her parents' home, but Termeh decides to stay with Nader. When Nader hires a young woman to assist with his father in his wife's absence, he hopes that his life will return to a normal state. However, when he discovers that the new maid has been lying to him, he realizes that there is more on the line than just his marriage.
-
 #### A Prophet ("Un prophète") - 2009
 
 Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, cannot read or write. Arriving at the jail entirely alone, he appears younger and more fragile than the other convicts. He is 19 years old. Cornered by the leader of the Corsican gang currently ruling the prison, he is given a number of "missions" to carry out, toughening him up and gaining the gang leader's confidence in the process. Malik is a fast learner and rises up the prison ranks, all the while secretly devising his own plans.
-
-#### About Elly ("Darbareye Elly") - 2009
-
-A gripping mystery set among a group of old friends on a holiday retreat. With the return of their close friend Ahmad from Germany, a group of former college pals decide to reunite for a weekend outing by the Caspian Sea. The fun starts right away as they quickly catch on to the plan of lively Sepideh, who has brought along Elly, her daughter's kindergarten teacher, in hopes of setting her up with recently divorced Ahmad. But seemingly trivial lies, which start accumulating from the moment the group arrives at the seashore, suddenly swing round and come back full force when one afternoon Elly suddenly vanishes. Her mysterious disappearance sets in motion a series of deceptions and revelations that threaten to shatter everything they hold dear.
 
 #### Michael Clayton - 2007
 
@@ -68,17 +42,9 @@ Outlaw Ben Wade (Russell Crowe) terrorizes 1800s Arizona, especially the Souther
 #### Pan's Labyrinth - 2006
 It's 1944 and the Allies have invaded Nazi-held Europe. In Spain, a troop of soldiers are sent to a remote forest to flush out the rebels. They are led by Capitan Vidal, a murdering sadist, and with him are his new wife Carmen and her daughter from a previous marriage, 11-year-old Ofelia. Ofelia witnesses her stepfather's sadistic brutality and is drawn into Pan's Labyrinth, a magical world of mythical beings.
 
-#### The Lives Of Others ("Das Leben der Anderen") - 2006
-
-In 1984 East Berlin, an agent of the secret police, conducting surveillance on a writer and his lover, finds himself becoming increasingly absorbed by their lives.
-
 #### Old Boy - 2003
 
 Abducted on a rainy night in 1988, the obnoxious drunk, Oh Dae-Su, much to his surprise, wakes up locked in a windowless and dilapidated hotel room, for an unknown reason.
-
-#### Fracture - 2003
-
-When Ted Crawford discovers that his beautiful younger wife, Jennifer, is having an affair, he plans her murder--the perfect murder.
 
 #### City Of God ("Cidade de Deus") - 2003
 
@@ -92,7 +58,6 @@ When a beautiful first-grade teacher (Olivia Williams) arrives at a prep school,
 
 84 years later, a 100 year-old woman named Rose DeWitt Bukater tells the story to her granddaughter Lizzy Calvert, Brock Lovett, Lewis Bodine, Bobby Buell and Anatoly Mikailavich on the Keldysh about her life set in April 10th 1912, on a ship called Titanic when young Rose boards the departing ship with the upper-class passengers and her mother, Ruth DeWitt Bukater, and her fiancé, Caledon Hockley. Meanwhile, a drifter and artist named Jack Dawson and his best friend Fabrizio De Rossi win third-class tickets to the ship in a game. And she explains the whole story from departure until the death of Titanic on its first and last voyage April 15th, 1912 at 2:20 in the morning.
 
-
 #### Heat - 1995
 
 A group of professional bank robbers start to feel the heat from police when they unknowingly leave a clue at their latest heist.
@@ -105,33 +70,9 @@ Two detectives, a rookie and a veteran, hunt a serial killer who uses the seven 
 
 Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the Western, taking on the ghosts of his own star past.
 
-#### Hannah And Her Sisters - 1986
-
-"We try to organize our lives according to what we have read and learned and believed in, but our plans are lost in a tumult of emotion."
-
-#### Network - 1976
-
-A television network cynically exploits a deranged former anchor's ravings and revelations about the news media for its own profit.
-
 #### 2001: A Space Odyssey - 1968
 
 An imposing black structure provides a connection between the past and the future in this enigmatic adaptation of a short story by revered sci-fi author Arthur C. Clarke. When Dr. Dave Bowman (Keir Dullea) and other astronauts are sent on a mysterious mission, their ship's computer system, HAL, begins to display increasingly strange behavior, leading up to a tense showdown between man and machine that results in a mind-bending trek through space and time.
-
-#### 8 1/2 - 1963
-
-A harried movie director retreats into his memories and fantasies.
-
-#### L'avventura - 1960
-
-In Michelangelo Antonioni’s groundbreaking and controversial arthouse milestone, the mystery of a woman’s disappearance from a Mediterranean island is left unresolved.
-
-#### High Noon - 1952
-
-In this controversial western classic, Gary Cooper as Will Kane must delay his retirement as town marshal on the morning of his wedding to Grace Kelly in order to face outlaws planning to kill him. Three are waiting in and around town for the noon train that will bring their boss. Taut drama and crisp characterization examine the town's reaction to Kane's dilemma. As noon approaches, his new bride prepares to leave town-and him-based on her Quaker principles of nonviolence. His deputy (Bridges) wants to prove himself without Kane around; his former lover (Jurado), who is now seeing the deputy, was once involved with the leader of the men coming to kill him, and has to make choices of her own. 
-
-#### Notorious - 1946
-
-A woman is asked to spy on a group of Nazi friends in South America. How far will she have to go to ingratiate herself with them?
 
 #### Citizen Kane - 1941
 
