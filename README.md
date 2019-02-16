@@ -31,6 +31,10 @@ When Jeff (Jason Segel) leaves his mother's basement to buy wood glue at the sto
 
 Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, cannot read or write. Arriving at the jail entirely alone, he appears younger and more fragile than the other convicts. He is 19 years old. Cornered by the leader of the Corsican gang currently ruling the prison, he is given a number of "missions" to carry out, toughening him up and gaining the gang leader's confidence in the process. Malik is a fast learner and rises up the prison ranks, all the while secretly devising his own plans.
 
+#### Vicky Cristina Barcelona - 2008
+
+Americans Vicky (Rebecca Hall) and Cristina (Scarlett Johansson) arrive in Spain for a summer vacation at a friend's (Patricia Clarkson) Barcelona home. Visiting an art gallery, they meet seductive painter Juan Antonio (Javier Bardem), who invites them for a weekend of food, art and sex. Sparks really ignite when his fiery former lover (Penélope Cruz) arrives on the scene, making for a very crowded house.
+
 #### Michael Clayton - 2007
 
 A law firm brings in its "fixer" to remedy the situation after a lawyer has a breakdown while representing a chemical company that he knows is guilty in a multibillion-dollar class action suit.
