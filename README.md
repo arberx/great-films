@@ -74,6 +74,10 @@ Two detectives, a rookie and a veteran, hunt a serial killer who uses the seven 
 
 Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the Western, taking on the ghosts of his own star past.
 
+#### Scarface - 1983
+
+“In this country, you gotta make the money first. Then when you get the money, you get the power. Then when you get the power, then you get the women.” - Tony Montana
+
 #### 2001: A Space Odyssey - 1968
 
 An imposing black structure provides a connection between the past and the future in this enigmatic adaptation of a short story by revered sci-fi author Arthur C. Clarke. When Dr. Dave Bowman (Keir Dullea) and other astronauts are sent on a mysterious mission, their ship's computer system, HAL, begins to display increasingly strange behavior, leading up to a tense showdown between man and machine that results in a mind-bending trek through space and time.
