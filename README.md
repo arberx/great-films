@@ -35,6 +35,10 @@ Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, ca
 
 Americans Vicky (Rebecca Hall) and Cristina (Scarlett Johansson) arrive in Spain for a summer vacation at a friend's (Patricia Clarkson) Barcelona home. Visiting an art gallery, they meet seductive painter Juan Antonio (Javier Bardem), who invites them for a weekend of food, art and sex. Sparks really ignite when his fiery former lover (Penélope Cruz) arrives on the scene, making for a very crowded house.
 
+#### There Will Be Blood - 2007
+
+Ruthless silver miner, turned oil prospector, Daniel Plainview moves to oil-rich California. Using his adopted son HW to project a trustworthy, family-man image, Plainview cons local landowners into selling him their valuable properties for a pittance. However, local preacher Eli Sunday suspects Plainviews motives and intentions, starting a slow-burning feud that threatens both their lives.
+
 #### Michael Clayton - 2007
 
 A law firm brings in its "fixer" to remedy the situation after a lawyer has a breakdown while representing a chemical company that he knows is guilty in a multibillion-dollar class action suit.
