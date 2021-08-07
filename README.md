@@ -2,6 +2,9 @@
 
 A list of great stories, well told. Inspired from: https://github.com/ac360/great-films
 
+#### Parasite - 2019 
+
+Greed and class discrimination threaten the newly formed symbiotic relationship between the wealthy Park family and the destitute Kim clan.
 
 #### Three Billboards Outside Ebbing, Missouri - 2017
 
