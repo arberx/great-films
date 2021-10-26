@@ -30,6 +30,10 @@ Director Denis Villeneuve adapts Wajdi Mouawad's play concerning a pair of twins
 
 When Jeff (Jason Segel) leaves his mother's basement to buy wood glue at the store, he looks for signs from the universe to determine his path. However, a series of unexpected and amusing events leads him to cross paths with his family, especially his brother (Ed Helms), in the strangest of circumstances and locations. If Jeff is very lucky and universally blessed, he will find the meaning of his life... and remember to buy the wood glue as well.
 
+#### Black Swan - 2010
+
+Nina (Natalie Portman) is a ballerina whose passion for the dance rules every facet of her life. When the company's artistic director decides to replace his prima ballerina for their opening production of "Swan Lake," Nina is his first choice. She has competition in newcomer Lily (Mila Kunis) however. While Nina is perfect for the role of the White Swan, Lily personifies the Black Swan. As rivalry between the two dancers transforms into a twisted friendship, Nina's dark side begins to emerge.
+
 #### A Prophet ("Un prophète") - 2009
 
 Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, cannot read or write. Arriving at the jail entirely alone, he appears younger and more fragile than the other convicts. He is 19 years old. Cornered by the leader of the Corsican gang currently ruling the prison, he is given a number of "missions" to carry out, toughening him up and gaining the gang leader's confidence in the process. Malik is a fast learner and rises up the prison ranks, all the while secretly devising his own plans.
