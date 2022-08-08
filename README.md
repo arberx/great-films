@@ -2,7 +2,7 @@
 
 A list of great stories, well told. Inspired from: https://github.com/ac360/great-films
 
-#### The Alpinest - 2021
+#### The Alpinist - 2021
 
 Marc-André Leclerc climbs alone, far from the limelight. The free-spirited 23-year-old makes some of the boldest solo ascents in history.
 
