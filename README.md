@@ -2,6 +2,10 @@
 
 A list of great stories, well told. Inspired from: https://github.com/ac360/great-films
 
+#### The Holdovers - 2023
+
+A curmudgeonly instructor at a New England prep school remains on campus during Christmas break to babysit a handful of students with nowhere to go. He soon forms an unlikely bond with a brainy but damaged troublemaker, and with the school's head cook, a woman who just lost a son in the Vietnam War.
+
 #### The Whale - 2022
 
 In a town in Idaho, Charlie, a reclusive and unhealthy English teacher, hides out in his flat and eats his way to death. He is desperate to reconnect with his teenage daughter for a last chance at redemption.
