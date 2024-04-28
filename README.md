@@ -14,7 +14,7 @@ In a town in Idaho, Charlie, a reclusive and unhealthy English teacher, hides ou
 
 Marc-André Leclerc climbs alone, far from the limelight. The free-spirited 23-year-old makes some of the boldest solo ascents in history.
 
-#### Parasite - 2019 
+#### Parasite - 2019
 
 Greed and class discrimination threaten the newly formed symbiotic relationship between the wealthy Park family and the destitute Kim clan.
 
@@ -38,7 +38,7 @@ A young boy is raised within the confines of a small shed.
 
 Director Denis Villeneuve adapts Wajdi Mouawad's play concerning a pair of twins who make a life-altering discovery following the death of their mother. Upon learning that their absentee father is still very much alive and they also have a brother they have never met, the pair travels to the Middle East on a mission to uncover the truth about their mystery-shrouded past.
 
-#### Jeff, Who Lives at Home - 2011 
+#### Jeff, Who Lives at Home - 2011
 
 When Jeff (Jason Segel) leaves his mother's basement to buy wood glue at the store, he looks for signs from the universe to determine his path. However, a series of unexpected and amusing events leads him to cross paths with his family, especially his brother (Ed Helms), in the strangest of circumstances and locations. If Jeff is very lucky and universally blessed, he will find the meaning of his life... and remember to buy the wood glue as well.
 
@@ -113,10 +113,14 @@ Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the Western, 
 
 “In this country, you gotta make the money first. Then when you get the money, you get the power. Then when you get the power, then you get the women.” - Tony Montana
 
+#### Willy Wonka & the Chocolate Factory - 1971
+
+A sweet boy from a poor family dreams of finding one of five golden tickets hidden inside chocolate bar wrappers which will admit him to the eccentric and reclusive Willy Wonka's magical factory. One after another, tickets are discovered by ghastly children - but will the lad find the last remaining one and have all his dreams come true?
+
 #### 2001: A Space Odyssey - 1968
 
 An imposing black structure provides a connection between the past and the future in this enigmatic adaptation of a short story by revered sci-fi author Arthur C. Clarke. When Dr. Dave Bowman (Keir Dullea) and other astronauts are sent on a mysterious mission, their ship's computer system, HAL, begins to display increasingly strange behavior, leading up to a tense showdown between man and machine that results in a mind-bending trek through space and time.
 
 #### Citizen Kane - 1941
 
-When a reporter is assigned to decipher newspaper magnate Charles Foster Kane's (Orson Welles) dying words, his investigation gradually reveals the fascinating portrait of a complex man who rose from obscurity to staggering heights. 
+When a reporter is assigned to decipher newspaper magnate Charles Foster Kane's (Orson Welles) dying words, his investigation gradually reveals the fascinating portrait of a complex man who rose from obscurity to staggering heights.
