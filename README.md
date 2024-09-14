@@ -14,6 +14,10 @@ In a town in Idaho, Charlie, a reclusive and unhealthy English teacher, hides ou
 
 Marc-André Leclerc climbs alone, far from the limelight. The free-spirited 23-year-old makes some of the boldest solo ascents in history.
 
+#### Joker - 2019
+
+Forever alone in a crowd, failed comedian Arthur Fleck seeks connection as he walks the streets of Gotham City. Arthur wears two masks -- the one he paints for his day job as a clown, and the guise he projects in a futile attempt to feel like he's part of the world around him. Isolated, bullied and disregarded by society, Fleck begins a slow descent into madness as he transforms into the criminal mastermind known as the Joker.
+
 #### Parasite - 2019
 
 Greed and class discrimination threaten the newly formed symbiotic relationship between the wealthy Park family and the destitute Kim clan.
