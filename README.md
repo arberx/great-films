@@ -1,6 +1,10 @@
 # Great Films
 
-A list of great stories, well told. Inspired from: https://github.com/ac360/great-films
+A list of great films that make you feel some type of way.
+
+#### Poor Things - 2023
+
+Brought back to life by an unorthodox scientist, a young woman runs off with a lawyer on a whirlwind adventure across the continents. Free from the prejudices of her times, she grows steadfast in her purpose to stand for equality and liberation.
 
 #### The Holdovers - 2023
 
@@ -25,6 +29,10 @@ Greed and class discrimination threaten the newly formed symbiotic relationship 
 #### Three Billboards Outside Ebbing, Missouri - 2017
 
 Mildred Hayes, a hard-nosed mother is seeking justice for her murdered daughter. With no arrests after seven months, Mildred puts up three roadside signs to goad Ebbing police chief into action. But the law - and especially Sam Rockwell's hot-headed deputy - don't take kindly to the provocation. And the townsfolk are on their side. But Mildred doesn't care about ruffling a few feathers. In fact, she's happy to pluck the whole bird.
+
+### Hell or High Water - 2016
+
+Toby is a divorced father who's trying to make a better life for his son. His brother Tanner is an ex-convict with a short temper and a loose trigger finger. Together, they plan a series of heists against the bank that's about to foreclose on their family ranch. Standing in their way is Marcus, a Texas Ranger who's only weeks away from retirement. As the siblings plot their final robbery, they must also prepare for a showdown with a crafty lawman who's not ready to ride off into the sunset.
 
 #### Captian Fantastic - 2016
 
@@ -84,6 +92,10 @@ Abducted on a rainy night in 1988, the obnoxious drunk, Oh Dae-Su, much to his s
 #### City Of God ("Cidade de Deus") - 2003
 
 Fernando Meirelles' City of God is a sweeping tale of how crime affects the poor population of Rio de Janeiro. Though the narrative skips around in time, the main focus is on Cabeleira who formed a gang called the Tender Trio. He and his best friend, Bené (Phelipe Haagensen), become crime lords over the course of a decade. When Bené is killed before he can retire, Lil' Zé attempts to take out his arch enemy, Sandro Cenoura (Matheus Nachtergaele). But Sandro and a young gangster named Mane form an alliance and begin a gang war with Lil' Zé. Amateur photographer Buscape (Alexandre Rodrigues) takes pictures of the brutal crime war, making their story famous. City of God was screened at the 2002 Cannes Film Festival.
+
+#### Amélie - 2001
+
+"Amélie" is a fanciful comedy about a young woman who discretely orchestrates the lives of the people around her, creating a world exclusively of her own making. Shot in over 80 Parisian locations, acclaimed director Jean-Pierre Jeunet ("Delicatessen"; "The City of Lost Children") invokes his incomparable visionary style to capture the exquisite charm and mystery of modern-day Paris through the eyes of a beautiful ingenue.
 
 #### Rushmore - 1998
 
