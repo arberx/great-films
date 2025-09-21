@@ -129,6 +129,10 @@ Two detectives, a rookie and a veteran, hunt a serial killer who uses the seven 
 
 Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the Western, taking on the ghosts of his own star past.
 
+#### Cinema Paradiso - 1988
+
+Young Salvatore Di Vita (Salvatore Cascio) discovers the perfect escape from life in his war-torn Sicilian village: the Cinema Paradiso movie house, where projectionist Alfredo (Philippe Noiret) instills in the boy a deep love of films. When Salvatore grows up, falls in love with a beautiful local girl (Agnese Nano) and takes over as the Paradiso's projectionist, Alfredo must convince Salvatore to leave his small town and pursue his passion for filmmaking.
+
 #### Scarface - 1983
 
 “In this country, you gotta make the money first. Then when you get the money, you get the power. Then when you get the power, then you get the women.” - Tony Montana
