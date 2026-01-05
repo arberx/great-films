@@ -70,6 +70,10 @@ Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, ca
 
 Americans Vicky (Rebecca Hall) and Cristina (Scarlett Johansson) arrive in Spain for a summer vacation at a friend's (Patricia Clarkson) Barcelona home. Visiting an art gallery, they meet seductive painter Juan Antonio (Javier Bardem), who invites them for a weekend of food, art and sex. Sparks really ignite when his fiery former lover (Penélope Cruz) arrives on the scene, making for a very crowded house.
 
+#### Sunshine - 2007
+
+In the not-too-distant future, Earth's dying sun spells the end for humanity. In a last-ditch effort to save the planet, a crew of eight men and women ventures into space with a device that could revive the star. However, an accident, a grave mistake and a distress beacon from a long-lost spaceship throw the crew and its desperate mission into a tailspin.
+
 #### There Will Be Blood - 2007
 
 Ruthless silver miner, turned oil prospector, Daniel Plainview moves to oil-rich California. Using his adopted son HW to project a trustworthy, family-man image, Plainview cons local landowners into selling him their valuable properties for a pittance. However, local preacher Eli Sunday suspects Plainviews motives and intentions, starting a slow-burning feud that threatens both their lives.
