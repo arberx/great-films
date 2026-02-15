@@ -2,6 +2,10 @@
 
 A list of great films that make you feel some type of way.
 
+#### No Other Choice - 2025
+
+A 25-year veteran of a paper company is laid off after an American buyout. Desperate to maintain his middle-class status, house, and provider role, he turns to violent crime, murdering job competitors to secure a new position. 
+
 #### Poor Things - 2023
 
 Brought back to life by an unorthodox scientist, a young woman runs off with a lawyer on a whirlwind adventure across the continents. Free from the prejudices of her times, she grows steadfast in her purpose to stand for equality and liberation.
